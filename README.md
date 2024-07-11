@@ -1,1 +1,2 @@
-# first_of_many
+# FIRST_OF_MANY
+HEY GUYS ITS MY FIRST TIME HERE!
